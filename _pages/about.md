@@ -11,6 +11,7 @@ I am currently an associate professor in the Department of Civil and Environment
 
 Awards
 ------
+* Springer Nature Editorial Contribution Award, 2026
 * Transportation Science Meritorious Service Award, 2024
 * NSF CAREER Award, 2021
 * ASCE ExCEEd Faculty Fellowship, US Military Academy West Point, 2018
